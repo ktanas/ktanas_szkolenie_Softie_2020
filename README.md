@@ -1,0 +1,1 @@
+# ktanas_szkolenie_Softie_2020
